@@ -4,7 +4,7 @@
   
 # 🦎About me👋
 
-Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I'm a Grade 6 learner that is willing to learn to code. My pronoun is she/her. I like to make my lizard OC into a boy instead of a girl. My favorite hobbies are drawing, sleeping, coding, reading online comics, playing games, and more.
+Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I'm a Grade 6 learner that is willing to learn to code. My pronoun is She/Her. I like to make my lizard OC into a boy instead of a girl. My favorite hobbies are drawing, sleeping, coding, reading online comics, playing games, and more.
   
 <p align="center">
   
