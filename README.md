@@ -1,5 +1,7 @@
 <div align="center">
 
+<img width="1920" height="566" alt="Drawing-17 sketchpad" src="https://github.com/user-attachments/assets/bfc15020-69c6-4698-b693-896543f2ca96" />
+
 <table><th><p align="center">
   
 # *🦎About me👋*
