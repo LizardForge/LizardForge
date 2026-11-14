@@ -25,3 +25,7 @@ I speak British/Spanish/Tagalog/French/English.
 </table></th>
 
 
+
+
+<img width="1920" height="566" alt="Drawing-18 sketchpad (1)" src="https://github.com/user-attachments/assets/d3a65da2-bd8c-4f8a-ba34-617ed85dc37e" />
+
