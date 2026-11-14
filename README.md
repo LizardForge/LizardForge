@@ -32,7 +32,11 @@ I speak British/Spanish/Tagalog/French/English.
 
 I usually don't know ABOUT GitHub, so I decided to do coding and sketching. 
 
-<img width="300" height="300" alt="Drawing-22 sketchpad" src="https://github.com/user-attachments/assets/589c697e-611f-4283-bcc1-b13869336ebe" />
+<img width="300" height="300" alt="Drawing-22 sketchpad" src="https://github.com/user-attachments/assets/589c697e-611f-4283-bcc1-b13869336ebe" /> <img width="300" height="300" alt="Drawing-24 sketchpad (1)" src="https://github.com/user-attachments/assets/d75ecbfc-8e5a-44e6-8ab2-b56888f552fb" />
+
+
+</table></th>
+
 
 
 
