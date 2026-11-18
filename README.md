@@ -11,6 +11,7 @@ Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I
 <p align="center">
   
 <img width="300" height="300" alt="Drawing-21 sketchpad" src="https://github.com/user-attachments/assets/82b8b923-99e9-4e3f-af46-cf32f0145046" />
+<img width="300" height="300" alt="Drawing-33 sketchpad" src="https://github.com/user-attachments/assets/896d758f-d79c-40db-841a-3cf7888fc4d5" />
 
 
 
@@ -33,14 +34,23 @@ I speak British/Spanish/Tagalog/French/English.
 I usually don't know ABOUT GitHub, so I decided to do coding and sketching. 
 
 <img width="300" height="300" alt="Drawing-22 sketchpad" src="https://github.com/user-attachments/assets/589c697e-611f-4283-bcc1-b13869336ebe" /> <img width="300" height="300" alt="Drawing-24 sketchpad (1)" src="https://github.com/user-attachments/assets/d75ecbfc-8e5a-44e6-8ab2-b56888f552fb" />
+<img width="300" height="300" alt="Drawing-34 sketchpad" src="https://github.com/user-attachments/assets/64c41a44-f38a-418b-9a8c-a08625c1f142" />
 
+</table></th>
+
+
+<table><th><p align="center">
+
+# *My art/sketches <3.*
+
+I usually love to draw/sketch. Drawing helps me think of some more intriguing ideas. 
+
+<img width="300" height="300" alt="Drawing-38 sketchpad" src="https://github.com/user-attachments/assets/badbb565-08ef-44cc-9d66-ea9348c92f34" />
 
 </table></th>
 
 
 
-
-</table></th>
 
 <img width="1920" height="566" alt="Drawing-18 sketchpad (1)" src="https://github.com/user-attachments/assets/78e734bf-cdd5-4684-a25c-56db25b11246" />
 
