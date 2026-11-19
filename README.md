@@ -21,7 +21,7 @@ Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I
   
 # *🤓What Language do I usually speak into🤔*
 
-I speak British/Spanish/Tagalog/French/English.
+I speak British/Spanish/Tagalog/French/English. (I know them a little bit.)
 
 <img width="300" height="300" alt="Drawing-11 sketchpad" src="https://github.com/user-attachments/assets/727105c3-5a58-4a64-a32f-c43f02e82591" />
 
