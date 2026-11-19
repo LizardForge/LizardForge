@@ -53,6 +53,8 @@ I usually love to draw/sketch. Drawing helps me think of some more intriguing id
 
 # *🐍About Lizard and Snake🦎</3.*
 
+I kind of love shipping Lizard and Snake because they're my favorite animals </3
+
 <img width="300" height="300" alt="Drawing-43 sketchpad" src="https://github.com/user-attachments/assets/2e4bdfb5-7a62-4b59-a7e0-537fad192490" />
 
 Haha, it's my sweet, loving snake.❤️ </3
