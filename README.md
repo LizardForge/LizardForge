@@ -49,6 +49,18 @@ I usually love to draw/sketch. Drawing helps me think of some more intriguing id
 
 </table></th>
 
+<table><th><p align="center">
+
+# *🐍About Lizard and Snake🦎</3.*
+
+<img width="300" height="300" alt="Drawing-43 sketchpad" src="https://github.com/user-attachments/assets/2e4bdfb5-7a62-4b59-a7e0-537fad192490" />
+
+Haha, it's my sweet, loving snake.❤️ </3
+
+
+
+</table></th>
+
 
 
 
