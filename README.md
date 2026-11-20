@@ -60,7 +60,7 @@ I kind of love shipping Lizard and Snake because they're my favorite animals </3
 Haha, it's my sweet, loving snake.❤️ </3
 
 
-<img width="300" height="300" alt="Drawing sketchpad (1)" src="https://github.com/user-attachments/assets/dceb70a9-0158-4abe-91df-b274976efb39" />
+<img width="300" height="300" alt="Drawing sketchpad (2)" src="https://github.com/user-attachments/assets/a16c4508-9627-4a00-8d47-15edade3786e" />
 <img width="300" height="300" alt="Drawing-1 sketchpad (2)" src="https://github.com/user-attachments/assets/633a560b-2d6b-4059-9c58-b5db4ac51023" />
 
 
