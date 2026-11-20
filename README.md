@@ -68,6 +68,30 @@ Haha, it's my sweet, loving snake.❤️ </3
 
 
 
+<table><th>
+
+<details>
+  
+<summary><ins>About my OC's families</ins></summary>
+  
+  
+ 
+  <p>My OC's have families. Viper's parents' names are Ziper (male) and Piper (female). Who are Ziper and Piper? Ziper is a male snake and a non-venemous snake. He treats his son, aka Viper, kindly. Piper is a female snake and is also venomous. She doesn't treat her son kindly or play with him.</p>
+
+<p align=center>
+    
+<img width="300" height="300" alt="Drawing-3 sketchpad" src="https://github.com/user-attachments/assets/996716bf-96fc-48c4-8b91-c0f7356bf0d9" />
+
+#
+
+<p>Zilla's family names are Scales (male) and Kailey (female). Who are Scales and Kailey? Scales is the playful father and a most cheerful lizard father. And Kailey is ALSO a playful mother and a most cheerful and honest lizard mother.</p>
+<img width="300" height="300" alt="Drawing-4 sketchpad" src="https://github.com/user-attachments/assets/a00d745f-1aef-48f9-b828-9627627666b0" />
+
+  
+ </div>
+</details>
+
+</table></th>
 
 <img width="1920" height="566" alt="Drawing-18 sketchpad (1)" src="https://github.com/user-attachments/assets/78e734bf-cdd5-4684-a25c-56db25b11246" />
 
