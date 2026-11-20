@@ -6,7 +6,7 @@
   
 # *🦎About me🐍*
 
-Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I'm a Grade 6 learner that is willing to learn to code. My pronoun is "she/her." I like to make my lizard OC into a boy instead of a girl. My favorite hobbies are drawing, sleeping, coding, reading online comics, playing games, and more. I'm a young developer program member of GitHub. My favorite ADORABLE animals are lizards and snakes!
+Hello! I'm LizardForge. My birthday is November 9🎉, and my age is under 15. I'm a Grade 6 learner that is willing to learn to code. My pronoun is "she/her." I like to make my lizard OC into a boy instead of a girl. My favorite hobbies are drawing, sleeping, coding, reading online comics, playing games, and more. I'm a young developer program member of GitHub. My favorite ADORABLE animals are lizards and snakes! I'm usually taken by my OC, aka the Snake.
   
 <p align="center">
   
@@ -58,6 +58,9 @@ I kind of love shipping Lizard and Snake because they're my favorite animals </3
 <img width="300" height="300" alt="Drawing-43 sketchpad" src="https://github.com/user-attachments/assets/2e4bdfb5-7a62-4b59-a7e0-537fad192490" />
 
 Haha, it's my sweet, loving snake.❤️ </3
+
+<img width="300" height="300" alt="Drawing sketchpad" src="https://github.com/user-attachments/assets/26290e73-2860-487c-9a1a-f43052355087" />
+<img width="300" height="300" alt="Drawing-1 sketchpad (1)" src="https://github.com/user-attachments/assets/73280087-21b9-4a0a-b667-0a0091572d58" />
 
 
 
